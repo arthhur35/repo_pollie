@@ -1,1 +1,2 @@
-# repo_pollie
+# ILOVENEWTRENDS
+Hello, my name is Arthur, I am High Intellectual Potential (HPI) and single. I'm 35 years old and I'm a computer scientist at Atypikoo, a social network for neuroatypical people, like me. In 2000, I debugged the New Year's bug without anyone noticing. In January 2012, I won the title of LEADER ONE by successfully entering the Pentagon's database... following a vulgar bet. Today, I am looking for the woman of my life. You can contact me directly on Atypikoo. See you soon!
